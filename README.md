@@ -1,1 +1,1 @@
-# Seyehat-Blog-Sitesi
+# Seyahat-Blog-Sitesi
